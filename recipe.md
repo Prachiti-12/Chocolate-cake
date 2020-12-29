@@ -1,0 +1,1 @@
+Combine dry ingredients ,in mixer bowl. Add eggs , buttermilk ,oil,and vanilla,and beat at medium speed until just combined.Add the boiling water water a mix immediately by hand until the batter is smooth (don't over mix). bake for 60 mins and preheat the oven to 145 degree celsius.

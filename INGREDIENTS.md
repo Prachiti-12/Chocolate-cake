@@ -1,0 +1,1 @@
+3 cups flour,3 cups sugar,1 cup cocoa power,3 tsp baking soda,pinch of salt,1 egg,1 cup buttermilk,1cup oil, 1 spoon vanilla ,1 cup of water.
